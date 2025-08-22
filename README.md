@@ -7,7 +7,6 @@ Hola, mi nombre es Gabriel Michel, tengo 22 años y soy estudiante de la "Tecnic
 Empece en la universidad en 2023, y me encanta saber que en cada cuatrimestre seguiré ampliando mis conocimientos, y en parte, es lo que me motiva a seguir en la carrera.
 Realmente no tengo mucho mas que decir sobre mi, pero voy a agregar unos datos extras.
 
-Empece el gym hace 1 mes, lo cual me pone contento.
 
 Trabajo principalmente de repartidor.
 
